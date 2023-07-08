@@ -4,14 +4,14 @@
 
 ## Немного обо мне
 
-(https://creazilla-store.fra1.digitaloceanspaces.com/cliparts/3479261/quasi-celtic-ornamental-knot-49crossings-inrectangle-clipart-sm.png)
+![Пам пам](https://creazilla-store.fra1.digitaloceanspaces.com/cliparts/3479261/quasi-celtic-ornamental-knot-49crossings-inrectangle-clipart-sm.png)
 
 1. Желаю войти в IT как можно быстрее 
 2. Без отличного кофе - это не день 
 3. Уже в поиске вакансий QA 
 4. В отношениях с замечательной девушкой Елизаветой уже 2 года.
 
-(https://creazilla-store.fra1.digitaloceanspaces.com/cliparts/3479261/quasi-celtic-ornamental-knot-49crossings-inrectangle-clipart-sm.png)
+![Пам пам](https://creazilla-store.fra1.digitaloceanspaces.com/cliparts/3479261/quasi-celtic-ornamental-knot-49crossings-inrectangle-clipart-sm.png)
 
 ### Контактные данные 
 
